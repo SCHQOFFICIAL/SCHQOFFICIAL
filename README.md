@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @SCHQOFFICIAL
+- 👀 I’m interested in Coding
+- 🌱 I’m currently learning Javascript
+- 📫 Reach me On discord 9788#7977
